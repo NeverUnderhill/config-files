@@ -29,10 +29,4 @@ Also feel free to use or abuse any of the files u find here.
 
 
 
-And yeah, here's a HOTTO-DOGU for the weary traveler
-					 ______________
-				  .-'              `-.
-				 (____________________)
-				  (                  )
-				 ( `----------------' )
-				  `------------------'
+And yeah, here's a HOTTO-DOGU for the weary traveler 🌭
